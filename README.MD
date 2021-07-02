@@ -1,0 +1,1 @@
+Estou achando esse curos incrivel
